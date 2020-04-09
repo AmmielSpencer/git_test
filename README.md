@@ -1,0 +1,1 @@
+This is Ammiel's first git project I think, I ma or may not have done this before lol
